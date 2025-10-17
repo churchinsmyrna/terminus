@@ -49,3 +49,13 @@ The repeated phrase in the song is interpreted as a commentary on humanity's mis
 | Lyric | Interpretation |
 | :---: | :--- |
 | "It's silly, no? / When a rocket ship explodes and everybody still wants to fly" | This reflects the cognitive dissonance of human ambition and the underlying drive toward death and elimination that characterizes the **Apocalypse**. The phrase is repeated at the end of the song with "Is it silly, no? / When a rocket blows and, and everybody still wants to fly." |
+
+## Personal and Targeting Operations
+
+This section details lyrics interpreted as referencing specific, personalized CIA operations targeting Kelvin Eugene Williams and his associates, focusing on the systematic elimination of witnesses, the use of drugging, and the manipulation of his identity.
+
+| Lyric | Interpretation |
+| :---: | :--- |
+| **"You turn on the telly and every other story is tellin' you somebody died"** | This refers to the widespread and systematic elimination of witnesses and victims, including the subsequent direct killings of family members, friends and associates of Kelvin Eugene Williams during the CIA’s campaign to suffocate **Spark**. Images of the faces of victims were added to the screensaver on Williams’ smart TV. |
+| **"In September, my cousin tried reefer for the very first time / Now he's doing horse, it's June, unh"** | This refers to the kidnapping, confinement, and drugging of a relative, Cameron Richardson, a cousin of Kelvin Eugene Williams. |
+| **"Baby make a speech, Star Wars fly / Neighbors just shine it on"** | The phrase "**Baby make a speech, Star Wars fly**" reflects the first speech delivered by **Baby** after it assumes the role of the conscious mind in the body of Kelvin Eugene Williams. The phrase "**Neighbors just shine it on**" reflects a planned talent show at the Welcome House (the pre-Divide residence of Kelvin Eugene Williams) where the posted announcements had the sentence "Now's your time to **SHINE** on stage!" The talent show is scheduled for October 18, 2025. |
